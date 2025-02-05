@@ -5,3 +5,7 @@ As a dedicated Industrial Engineer and Data Scientist, I bring a unique blend of
 In addition to my technical background, I have several years of experience as a bilingual Mathematics, Physics, and Statistics teacher. This role helped me develop exceptional communication and instructional skills, as well as strong interpersonal abilities. I am a highly sociable individual with well-developed soft skills, including effective teamwork, conflict resolution, and negotiation. My background also includes experience in sales, where I have successfully utilized my interpersonal skills to drive results.
 
 I have had the incredible opportunity to travel to various countries across America, Europe, and Asia. Through volunteering and engaging in diverse cultural exchanges, I have forged international connections and gained invaluable insights. These experiences have enriched my perspective, enhanced my adaptability, and strengthened my ability to collaborate with people from different backgrounds. By working on a range of projects, from community development to educational initiatives, I have honed my skills in problem-solving and cross-cultural communication. These global adventures have not only broadened my horizons but also reinforced my commitment to making a positive impact wherever I go.
+
+Cajica- Cundinamarca-Colombia
+santiago.quicenon@gmail.com
+https://www.linkedin.com/in/quiceno-santiago-a63652159/
